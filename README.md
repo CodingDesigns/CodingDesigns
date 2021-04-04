@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Hicham
 - 👀 I’m interested in designing interfaces and coding
 - 🌱 I’m currently learning too many things 😅
-- 💞️ I’m looking to collaborate on whatever as something to do with design and dev
+- 💞️ I’m looking to collaborate on whatever has something to do with design and dev
 - 📫 How to reach me : https://www.wowcodesign.net
 
 Take care and peace !
