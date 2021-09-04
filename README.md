@@ -2,7 +2,7 @@
 - 👀 I’m interested in designing interfaces and coding
 - 🌱 I’m currently learning too many things 😅
 - 💞️ I’m looking to collaborate on whatever has something to do with design and dev
-- 📫 How to reach me : https://www.wowcodesign.net
+- 📫 How to reach me : https://www.hichamtazdait.net
 
 Take care and peace !
 
